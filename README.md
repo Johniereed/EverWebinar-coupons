@@ -12,13 +12,13 @@ Here are the EverWebinar discounts available that you can avail of with the prom
 
 ## Claim 40% Off EverWebinar Promo Code
 
-Get [40% off](https://bit.ly/4foCbeS) EverWebinar's premium plans with this limited-time coupon code. Unlock powerful tools for engaging audiences and boosting conversions.
+Get [40% off](https://try.kartra.com/ivayp8nb8sjs-x0ypbx) EverWebinar's premium plans with this limited-time coupon code. Unlock powerful tools for engaging audiences and boosting conversions.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdpE0AIbYOnpHwhlq_r7m0x8WeypD09g1prDgivNt57GZWjKyyfiGuOJFbEd3hpzd2H36C6_M6HLOT-2DyT4kpyRFq1A0HAWsGfKeP_3ZUymDL92TMKA2Na61IVOJX2yg?key=D4GksDlH1IW6G4rKMCYEC5J6)](https://try.kartra.com/ivayp8nb8sjs-x0ypbx)
 
 ## Get 25% Discount EverWebinar Coupon Code
 
-Save [25% Off](https://bit.ly/4foCbeS) with this EverWebinar discount code, you can elevate your online events and deliver unforgettable experiences.
+Save [25% Off](https://try.kartra.com/ivayp8nb8sjs-x0ypbx) with this EverWebinar discount code, you can elevate your online events and deliver unforgettable experiences.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfqGJ2ZH4h8iVKyFgTjbMkKk4711M6nJFDmLEQnJR1KwcbRzp1w-8kmLfmvf-uBY8RtgGS2MWlGR57dvRbIJTNbvxHMyBwTxFpkCntceOd5MOn5DMeP4gwhYOUEfiRn-Q?key=D4GksDlH1IW6G4rKMCYEC5J6)](https://try.kartra.com/ivayp8nb8sjs-x0ypbx)
 
