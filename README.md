@@ -163,7 +163,7 @@ Whether you're looking to host live webinars, automated evergreen sessions, or a
 
 New users can take advantage of the EverWebinar Trial for just $1, providing 30 days to explore its features and see how it can automate webinars and boost engagement effectively.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXctsmAVFaVPwyp04PEQR2AhMlCNStzQoIgtQH0KQRE_ImLJOURswnLMgMgdmM5fizxC26XbFHBXIyGA4h01F0Gc8Me07LAtlLjfHwnM5kZuGU1wqnLCOskAL024K2kjM6c?key=D4GksDlH1IW6G4rKMCYEC5J6)](https://bit.ly/4foCbeS)
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXctsmAVFaVPwyp04PEQR2AhMlCNStzQoIgtQH0KQRE_ImLJOURswnLMgMgdmM5fizxC26XbFHBXIyGA4h01F0Gc8Me07LAtlLjfHwnM5kZuGU1wqnLCOskAL024K2kjM6c?key=D4GksDlH1IW6G4rKMCYEC5J6)](https://try.kartra.com/ivayp8nb8sjs-x0ypbx)
 
 With its user-friendly interface, robust features, and enticing coupons and discounts, it's an excellent choice for businesses and individuals seeking to elevate their online presence and engage audiences effectively.
 
