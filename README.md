@@ -185,4 +185,8 @@ Yes, you can run and host free webinars on Google Meet.
 
 ## How long is the Webinarjam free trial?
 
-Webinar Jam provides a 30-day free trial. There was formerly a 60-day free trial available. Despite being among the top software for webinars, the software is a touch pricey because to its exceptional features.
+Webinar Jam provides a 30-day free trial. There was formerly a 60-day free trial available. Despite being among the top software for webinars, the software is a touch pricey because of its exceptional features.
+
+## Who Is The Owner Of EverWebinar?
+EverWebinar is owned by Genesis Digital, LLC, which is also the parent company of [Kartra](https://github.com/Johniereed/Kartra-coupon/).
+
